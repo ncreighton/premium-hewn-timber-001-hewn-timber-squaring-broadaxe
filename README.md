@@ -1,0 +1,2 @@
+# premium-hewn-timber-001-hewn-timber-squaring-broadaxe
+Stop losing track of your broadaxe strokes and wasting precious timber. The Hewn Timber Squaring Broadaxe Scoring Tracker brings precision to your hewing, ensuring every cut counts.  This template eliminates guesswork from your squaring process. Track each log's dimensions, notch depth, and stroke count in one central Notion database. With automate
